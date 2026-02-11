@@ -1,2 +1,2 @@
-JunicGames es Julio Fernando Ortiz
-JJMazariegos es Juan José Mazariegos
+JunicGames es Julio Fernando Ortiz ---
+JJMazariegos/JuanchuFGT es Juan José Mazariegos
